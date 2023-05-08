@@ -1,4 +1,4 @@
-Improved Recipe: Steamed Buns (20 servings)
+Steamed Buns (20 servings)
 ===
 
 This recipe requires approximately 3 hours of work by a single person.
